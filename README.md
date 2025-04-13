@@ -1,0 +1,1 @@
+o'qishing kerak
